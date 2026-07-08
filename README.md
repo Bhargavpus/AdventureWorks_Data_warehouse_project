@@ -66,4 +66,4 @@ Develop SQL-based analytics to deliver detailed insights into:
 
 These insights empower stakeholders with key business metrics, enabling strategic decision-making.
 
-[](https://linkedin.com/in/baraa-khatib-salkini)[](https://www.datawithbaraa.com)[](https://bit.ly/BaraaNewsletter)[](https://paypal.me/baraasalkini)[](https://www.youtube.com/@datawithbaraa)
+[](https://www.linkedin.com/in/bhargav-pusuluri-p/)[]
